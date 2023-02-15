@@ -1,2 +1,1 @@
-# History-of-Chtrnobil
-#vbxkjdhfbndfgb
+# History-of-Chernobil
